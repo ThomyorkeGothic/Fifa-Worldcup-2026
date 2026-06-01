@@ -1,1 +1,0 @@
-# Fifa-Worldcup-2026
